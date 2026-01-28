@@ -2,7 +2,7 @@
 
 ## Software Engineer
 
-* Peruavian born, Spanish citizen and Berlin based 🌎
+* Peruvian born, Spanish citizen and Berlin based 🌎
 * You can say hi on my [LinkedIn](https://www.linkedin.com/in/ammy-varela-rodriguez/) or shoot me an email: ammyvrodriguez@hotmail.com
 
 ## Languages
